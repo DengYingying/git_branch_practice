@@ -4,7 +4,7 @@ These are a few of my favorite things:
 
 - Dancing with eyes closed
 - Raindrops on roses
-- Whiskers on cute animals
+- Whiskers on cute cats
 - Bright copper kettles
 - Warm woolen mittens
 - Not editing directly on GitHub
